@@ -1,4 +1,4 @@
-## Oi! Me chamo Rozinildo Arruda
+## Oi! Me chamo Rozinildo da Silva Arruda
 
 - Hoje Trabalho como Assistente de Projetos
 - Graduando em Análise e Desenvolvimento de Sistemas
